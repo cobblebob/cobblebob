@@ -5,7 +5,7 @@
   
 ###
   
-Feel free to call me either Cobalt, Dice, or Spade. New nicknames are for ppl ik only, pls.
+Feel free to call me Cobalt, Dice, or Spade. New nicknames are for ppl ik only, pls.
 
 I'm an adult abv ON's drinking age, and prefer she/her
 
@@ -51,15 +51,15 @@ South Park ponies/talk pls dni or iwec if ik you, as I dislike both the fandom a
 
 -17 if idk you
 
-Any ships w/Scout TF2 + Berryfunny shippers, some of you can be weird with both respectively
+Any ships w/Scout TF2 + Berryfunny shippers, some of you can be weird with both, respectively
 
 DW fans/shippers
 
-Fruitcake shippesrs as people have attempted to force it on me multiple times
+Fruitcake shippers, as people have attempted to force it on me multiple times
 
 Soulbasket shippers
 
-TF2 fans, especially Medic fans/ponies as some of you can be weird with him</details></details>
+TF2 fans, especially Medic fans/ponies, as some of you can be weird with him</details></details>
 
 #
 
