@@ -106,4 +106,4 @@ Animatronics, canon x oc, Chicken Smoothie, creepypastas, clowns, DC, Disney, dr
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
 
-[![Hits](https://hits.sh/github.com/cobblebob.svg?label=zomboss%20obeyers&color=5b9160&labelColor=67a56d)](https://hits.sh/github.com/cobblebob/)
+[![Hits](https://hits.sh/github.com/cobblebob.svg?label=brainz%20eaten%20%E2%A4%B3&color=5b9160&labelColor=67a56d)](https://hits.sh/github.com/cobblebob/)
