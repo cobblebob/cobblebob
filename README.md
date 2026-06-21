@@ -19,6 +19,8 @@ I believe in my mind, my OCs are alive. They feel their own things, have their o
 
 I have a typing quirk I sometimes use where I replace S with Z
 
+I'm an [Agent 8](https://splatoon.fandom.com/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier_(PvZ:_GW)) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, and [Zoey](https://left4deadwiki.com/wiki/Zoey) kin. Idm doubles, but yumes pls dni.
+
 Don't associate me w/my friends, pls. I don't agree with/know everything they do/say</details>
 
 #
