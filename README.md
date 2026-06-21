@@ -17,7 +17,7 @@ I'm usually at the docks, DW area, Roblox area, or TF2 area
 
 I believe in my mind, my OCs are alive. They feel their own things, have their own interests + more. Certain OCs don't like getting touched w/o permission, so pls respect that.
 
-I have a typing quirk where I replace S with Z
+I have a typing quirk I sometimes use where I replace S with Z
 
 Don't associate me w/my friends, pls. I don't agree with/know everything they do/say</details>
 
