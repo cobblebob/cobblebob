@@ -11,6 +11,8 @@ I'm an adult abv ON's drinking age, and prefer she/her
 
 I'm always on w2i as I'm almost always off-tab
 
+I'm happily taken by my bf (10.24.20 ❤︎⁠)
+
 I'm usually at the docks, DW area, Roblox area, or TF2 area
 
 I believe in my mind, my OCs are alive. They feel their own things, have their own interests + more. Certain OCs don't like getting touched w/o permission, so pls respect that.
@@ -28,17 +30,23 @@ Don't associate me w/my friends, pls. I don't agree with/know everything they do
 
 *Italic* = hidden on sight
 
+Benturray, Bentsly, Slurray shippers + Globox x Rayman shippers. I hc these characters as adoptive siblings respectively.
+
+Betilla x Rayman shippers. That's his mum
+
+Bowluigi, *Daveboss*, StrawberryCookie shippers, they make me uncomfy
+
 *Dark/proshippers*
 
 *Fazclaire's/Five Nights In Anime* ponies
 
-Bowluigi, *Daveboss*, StrawberryCookie shippers, they make me uncomfy
+Forsaken, Grace, Pressure dev apologists/players. Playing the games is still bad.
 
-Glitch/Vivziepop supporters, especially Jax apologists/ponies
+Glitch + Vivziepop supporters, especially Jax apologists/ponies
 
 Harlivy shippers as I've been told to ~~kms~~ bc I dislike it
 
-*Pokephiles*/*Zoophiles*
+*Pokephiles* + *Zoophiles*
 
 South Park ponies/talk pls dni or iwec if ik you, as I dislike both the fandom and show
 
@@ -56,6 +64,8 @@ South Park ponies/talk pls dni or iwec if ik you, as I dislike both the fandom a
 Any ships w/Scout TF2 + Berryfunny shippers, some of you can be weird with both, respectively
 
 DW fans/shippers
+
+Forsaken + Mouthwashing fans
 
 Fruitcake shippers, as people have attempted to force it on me multiple times
 
