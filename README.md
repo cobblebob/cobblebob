@@ -38,6 +38,8 @@ Glitch/Vivziepop supporters, especially Jax apologists/ponies
 
 Harlivy shippers as I've been told to ~~kms~~ bc I dislike it
 
+*Pokephiles*/*Zoophiles*
+
 South Park ponies/talk pls dni or iwec if ik you, as I dislike both the fandom and show
 
 *The Coffin of Andy and Leyley*
