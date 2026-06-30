@@ -32,6 +32,8 @@ Don't associate me w/my friends, pls. I don't agree with/know everything they do
 
 *Italic* = hidden on sight
 
+[Basic DNI](https://dont-interact-criteria.carrd.co)
+
 *Benturray Bentsly, Slurray* shippers + *Globox x Rayman* shippers. I hc these characters as adoptive siblings respectively.
 
 Betilla x Rayman shippers. That's his mum
