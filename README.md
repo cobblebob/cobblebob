@@ -5,23 +5,21 @@
   
 ###
   
-Feel free to call me Cobalt, Dice, or Spade. New nicknames are for ppl ik only, pls.
+Feel free to call me Cobalt, Dice, or Spade. If I barely know you, no new nicknames, pls.
 
-I'm an adult abv ON's drinking age, and prefer she/her
+adult abv ON's drinking age〢happily taken by my bf (10.24.20 <3)
 
-I'm always on w2i as I'm almost always off-tab
+Always on w2i as I'm almost always off-tab
 
-I'm happily taken by my bf (10.24.20 ❤︎⁠)
+At the docks, DW, Roblox, or TF2 area usually
 
-I'm usually at the docks, DW area, Roblox area, or TF2 area
-
-I believe in my mind, my OCs are alive. They feel their own things, have their own interests + more. Certain OCs don't like getting touched w/o permission, so pls respect that.
+I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect that.
 
 I have a typing quirk I sometimes use where I replace S with Z
 
-I'm an [Agent 8](https://splatoon.fandom.com/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier_(PvZ:_GW)) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, and [Zoey](https://left4deadwiki.com/wiki/Zoey) kin. Idm doubles, but yumes pls dni.
+[Agent 8](https://splatoon.fandom.com/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier_(PvZ:_GW)) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, and [Zoey](https://left4deadwiki.com/wiki/Zoey) kin〢doubles are ok to int, but yumes dni pls
 
-Don't associate me w/my friends, pls. I don't agree with/know everything they do/say</details>
+Don't associate me w/my friends, pls. I don't agree with/know everything they do/say.</details>
 
 #
 
