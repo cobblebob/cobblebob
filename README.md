@@ -61,6 +61,9 @@
 </details>
 
 ## <ins>Interests</ins>
+
+*Italic* = hyperfixation
+
 <details>
   <summary><ins>Games</ins></summary>
 
