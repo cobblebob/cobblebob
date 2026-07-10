@@ -41,6 +41,8 @@
 
 Bowluigi, *Daveboss*, StrawberryCookie shippers. They make me uncomfy.
 
+Copy Town supporters
+
 *Darkshippers*
 
 *Fazclaire's/Five Nights in Anime*
@@ -50,6 +52,8 @@ Dandy's World/Forsaken/Grace/Pressure dev supporters/players
 Glitch + Vivziepop supporters
 
 Harlivy shippers (I've been told to kms for disliking it.)
+
+Making fun of my typing quirk
 
 *Poke/zoophiles*
 
@@ -66,7 +70,8 @@ South Park ponies/talk dni, or iwec if ik you (I dislike the fandom and show.)
 
   <div align="center">
     <p>-15 if idk you</p>
-    <p>Copy Town supporters</p>
+    <p>Anybody who claims to have no DNI list</p>
+    <p>Being disrespectful abt my typing quirk/commenting on it</p>
     <p>DW fans/shippers + TF2 fans/shippers, esp. Medic and Scout fans/shippers</p>
     <p>Forsaken + Mouthwashing fans</p>
     <p>Fruitcake shippers (ppl have tried to force it on me before.)<p>
