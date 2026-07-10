@@ -5,7 +5,7 @@
 <div align="center">
 
 <p align="center">
-  <sub>click the arrows for info</sub>
+  <sub>click the arrows to open sections</sub>
 </p>
 <br>
 
