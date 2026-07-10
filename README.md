@@ -29,20 +29,34 @@
 
   ###
 
-★ = block on sight
+*Italic* = block on sight
 
-  <div align="center">
-    <p>Basic DNI</p>
-    <p>Benturray/Bentsly/Slurray ★ and Globox x Rayman ★ shippers. I hc these characters as adoptive siblings respectively.</p>
-    <p>Betilla x Rayman ★ shippers. That's his mum.</p>
-    <p>Darkshippers ★</p>
-    <p>Fazclaire's/Five Nights in Anime ★<p>
-    <p>Dandy's World/Forsaken/Grace/Pressure dev supporters/players</p>
-    <p>Glitch + Vivziepop supporters</p>
-    <p>Harlivy shippers (I've been told to kms for disliking it.)</p>
-    <p>Poke/zoophiles ★</p>
-    <p>South Park ponies/talk dni, or iwec if ik you (I dislike the fandom and show.)</p>
-    <p>The Coffin of Andy and Leyley ★</p>
+###
+
+[Basic DNI](https://dont-interact-criteria.carrd.co)
+   
+*Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers. I hc these characters as adoptive siblings respectively.
+
+*Betilla x Rayman* shippers. That's his mum.
+
+Bowluigi, *Daveboss*, StrawberryCookie shippers. They make me uncomfy.
+
+*Darkshippers*
+
+*Fazclaire's/Five Nights in Anime*
+
+Dandy's World/Forsaken/Grace/Pressure dev supporters/players
+
+Glitch + Vivziepop supporters
+
+Harlivy shippers (I've been told to kms for disliking it.)
+
+*Poke/zoophiles*
+
+South Park ponies/talk dni, or iwec if ik you (I dislike the fandom and show.)
+
+*The Coffin of Andy and Leyley*
+
 </details>
 
 <details>
