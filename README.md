@@ -36,13 +36,13 @@
     <p>Benturray/Bentsly/Slurray ★ and Globox x Rayman ★ shippers. I hc these characters as adoptive siblings respectively.</p>
     <p>Betilla x Rayman ★ shippers. That's his mum.</p>
     <p>Darkshippers ★</p>
-    <p>*Fazclaire's/Five Nights in Anime*<p>
+    <p>Fazclaire's/Five Nights in Anime ★<p>
     <p>Dandy's World/Forsaken/Grace/Pressure dev supporters/players</p>
     <p>Glitch + Vivziepop supporters</p>
     <p>Harlivy shippers (I've been told to kms for disliking it.)</p>
     <p>Poke/zoophiles ★</p>
     <p>South Park ponies/talk dni, or iwec if ik you (I dislike the fandom and show.)</p>
-    <p>The Coffin of Andy and Leyley *</p>
+    <p>The Coffin of Andy and Leyley ★</p>
 </details>
 
 <details>
