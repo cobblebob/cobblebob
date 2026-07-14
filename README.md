@@ -19,6 +19,7 @@
     <p>Adult abv ON's drinking age 〢 Canadian 〢 ENG and ESP speaker</p>
     <p>Happily taken by my boyfriend (10.24.20 ❤︎) 〢 demiromantic, demisexual, straight, zombiegender</p>
     <p>ISFJ-T 〢 6w5<p>
+      <p>Agent 8 (Splatoon 2) kin, high Foot Soldier (PVZ:GW/GW2) kin, Purple (Among Us Show), and Zoey (L4D/L4D2) kin 〢 doubles int, yumes dni<p>
     <p>I believe in my mind, my OCs are alive, and feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect this.</p>
     <p>I don't int first due to shyness and social awkwardness</p>
   </div>
