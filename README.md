@@ -52,7 +52,7 @@ Dandy's World/Forsaken/Grace/Pressure dev supporters/players
 
 Glitch + Vivziepop supporters
 
-Harlivy shippers (I've been told to kms for disliking it.)
+Harlivy shippers. I've been told to kms for disliking it.
 
 Making fun of my typing quirk
 
