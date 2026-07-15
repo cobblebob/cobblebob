@@ -38,9 +38,7 @@
    
 *Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers. I hc these characters as adoptive siblings respectively.
 
-*Betilla x Rayman* shippers. That's his mum.
-
-Bowluigi, *Daveboss*, StrawberryCookie shippers. They make me uncomfy.
+Betilla x Rayman, Bowluigi, *Daveboss*, StrawberryCookie shippers. They make me uncomfy.
 
 Copy Town supporters
 
