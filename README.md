@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Icons/ezgif.com-resize.gif" height="200" width="250" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Icons/PVZ%20icons/Big%20FS%20icon.png" height="100" width="100" />
 </p>
 
 <div align="center">
