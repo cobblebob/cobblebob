@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Icons/PVZ%20icons/Big%20FS%20icon.png" height="100" width="100" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Foot%20Soldier%20wave.gif" height="200" width="250" />
 </p>
 
 <div align="center">
@@ -15,13 +15,13 @@
   ###
 
   <div align="center">
-    <p>Feel free to refer to me as Cobalt, Dice, or Spade. If I barely know you, no new nicknames, pls and ty.</p>
-    <p>Adult abv ON's drinking age 〢 Canadian 〢 ENG and ESP speaker</p>
-    <p>Happily taken by my boyfriend (10.24.20 ❤︎) 〢 demiromantic, demisexual, straight, zombiegender</p>
-    <p>ISFJ-T 〢 6w5<p>
-      <p>Agent 8 (Splatoon 2) kin, high Foot Soldier (PVZ:GW/GW2) kin, Purple (Among Us Show), and Zoey (L4D/L4D2) kin 〢 doubles int, yumes dni<p>
-    <p>I believe in my mind, my OCs are alive, and feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect this.</p>
-    <p>I don't int first due to shyness and social awkwardness</p>
+    <p>Feel free to refer to me as Cobalt, Dice, or Spade. If I barely know you, no new nicknames, please and thank you.</p>
+    <p>Adult abv ON's drinking age , Canadian , ENG and ESP speaker</p>
+    <p>Happily taken by my bf (10.24.20 <3) , demiromantic, demisexual, straight, zombiegender</p>
+    <p>ISFJ-T , 6w5<p>
+      <p>Agent 8 kin, high Foot Soldier kin, Purple kin, and Zoey kin , doubles int, yumes dni<p>
+    <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
+    <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc.</p>
   </div>
 </details>
 
@@ -36,27 +36,27 @@
 
 [Basic DNI](https://dont-interact-criteria.carrd.co)
    
-*Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers. I hc these characters as adoptive siblings respectively.
+*Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers. I see these characters as adoptive siblings respectively.
 
-Betilla x Rayman, Bowluigi, *Daveboss*, StrawberryCookie shippers. They make me uncomfy.
+Betilla x Rayman, Bowluigi, *Daveboss*, StrawberryCookie shippers. These ships make me uncomfy.
+
+Commenting on/insulting/making fun of my typing quirk
 
 Copy Town supporters
+
+Dandy's World, Forsaken, Grace, Pressure dev supporters/players
 
 *Darkshippers*
 
 *Fazclaire's/Five Nights in Anime*
 
-Dandy's World/Forsaken/Grace/Pressure dev supporters/players
-
-Glitch + Vivziepop supporters
+Glitch, Vivziepop supporters
 
 Harlivy shippers. I've been told to kms for disliking it.
 
-Making fun of my typing quirk
-
 *Poke/zoophiles*
 
-South Park ponies/talk dni, or iwec if ik you (I dislike the fandom and show.)
+South Park ponies/talk. I dislike the fandom and show.
 
 *The Coffin of Andy and Leyley*
 
@@ -70,10 +70,9 @@ South Park ponies/talk dni, or iwec if ik you (I dislike the fandom and show.)
   <div align="center">
     <p>-15 if idk you</p>
     <p>Anybody who claims to have no DNI list</p>
-    <p>Being disrespectful abt my typing quirk/commenting on it</p>
-    <p>DW fans/shippers + TF2 fans/shippers, esp. Medic and Scout fans/shippers</p>
-    <p>Forsaken + Mouthwashing fans</p>
-    <p>Fruitcake shippers (ppl have tried to force it on me before.)<p>
+    <p>DW, TF2 fans/shippers, especially Medic and Scout fans/shippers</p>
+    <p>Forsaken, Mouthwashing</p>
+    <p>Fruitcake shippers as people have tried to force the ship on me<p>
     <p>Soulbasket shippers</p>
   </div>
 </details>
