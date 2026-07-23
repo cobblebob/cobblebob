@@ -71,7 +71,7 @@ South Park ponies/talk. I dislike the fandom and show.
     <p>-15 if idk you</p>
     <p>Anybody who claims to have no DNI list</p>
     <p>DW, TF2 fans/shippers, especially Medic and Scout fans/shippers</p>
-    <p>Forsaken, Mouthwashing</p>
+    <p>Forsaken, Homestuck, Mouthwashing</p>
     <p>Fruitcake shippers as people have tried to force the ship on me<p>
     <p>Soulbasket shippers</p>
   </div>
