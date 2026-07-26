@@ -19,7 +19,7 @@
     <p>Adult abv ON's drinking age , Canadian , ENG and ESP speaker</p>
     <p>Happily taken by my bf (10.24.20 <3) , demiromantic, demisexual, straight, zombiegender</p>
     <p>ISFJ-T , 6w5<p>
-      <p>Agent 8 kin, high Foot Soldier kin, Purple kin, and Zoey kin , doubles int, yumes dni<p>
+      <p>Agent 8 kin, high Foot Soldier kin, Nuclear Winter kin, Purple kin, and Zoey kin , doubles int, yumes dni<p>
     <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
     <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc.</p>
   </div>
