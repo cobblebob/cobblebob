@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/PVZ%20FS%20themed%20banner.png" height="700" width="700" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Plants%20vs%20Zombies%20Foot%20Soldier%20themed%20banner.png" height="700" width="700" />
 </p>
 
 <div align="center">
