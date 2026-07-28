@@ -9,6 +9,12 @@
 </p>
 <br>
 
+<p align="center">
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Ata%20stamp.png" height="120" width="200"/> ⠀ <a href="https://cobaltpng.atabook.org/">
+ </a> ⠀ <img src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Prns%20stamp.png" height="120" width="200"/> ⠀ <a href="https://en.pronouns.page/@Cobaltpng/">
+  </a> ⠀ <img src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SP%20stamp.png" height="120" width="200"/> ⠀ <a href="https://cobblebob.straw.page/">
+</p>
+
 <details>
   <summary><ins>About Me</ins></summary>
 
