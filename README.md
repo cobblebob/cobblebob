@@ -1,11 +1,11 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Foot%20Soldier%20wave.gif" height="200" width="250" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/PVZ%20FS%20themed%20banner.png" height="700" width="700" />
 </p>
 
 <div align="center">
 
 <p align="center">
-  <sub>click the arrows to open sections</sub>
+  <sub>ᴛʜᴇ ᴀʀʀᴏᴡs ᴀʀᴇ ᴄʟɪᴄᴋᴀʙʟᴇ.</sub>
 </p>
 <br>
 
@@ -14,15 +14,15 @@
 
   ###
 
-  <div align="center">
-    <p>Feel free to refer to me as Cobalt, Dice, or Spade. If I barely know you, no new nicknames, please and thank you.</p>
-    <p>Adult abv ON's drinking age , Canadian , ENG and ESP speaker</p>
-    <p>Happily taken by my bf (10.24.20 <3) , demiromantic, demisexual, straight, zombiegender</p>
-    <p>ISFJ-T , 6w5<p>
-      <p>Agent 8 kin, high Foot Soldier kin, Nuclear Winter kin, Purple kin, and Zoey kin , doubles int, yumes dni<p>
-    <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
-    <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc.</p>
-  </div>
+  <p>Call me Cobalt, Dice, or Spade. If I barely know you, no new nicknames, please. 〢 adult abv ON's drinking age</p>
+  <p>Canadian 〢 English, French, and Spanish speaker</p>
+  <p>Taken, do NOT flirt with me (10.24.20 ❤︎) 〢 demiromantic/sexual, straight, zombiegender</p>
+  <p>ISFJ-T 〢 6w5</p>
+  
+  [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, [high Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin 〢 doubles are ok to int, but yumes dni please.
+  <p>Don't associate me with my friends. I don't agree with/know everything they do or say.</p>
+  <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect that.</p>
+  <p>I don't interact first due to shyness/social awkwardness (unless I'm crowning you), and am not afraid to speak up if someone/something's bothering me</p>
 </details>
 
 <details>
@@ -36,29 +36,20 @@
 
 [Basic DNI](https://dont-interact-criteria.carrd.co)
    
-*Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers. I see these characters as adoptive siblings respectively.
-
-Betilla x Rayman, Bowluigi, *Daveboss*, StrawberryCookie shippers. These ships make me uncomfy.
-
-Commenting on/insulting/making fun of my typing quirk
-
-Copy Town supporters
-
-Dandy's World, Forsaken, Grace, Pressure dev supporters/players
-
-*Darkshippers*
-
-*Fazclaire's/Five Nights in Anime*
-
-Glitch, Vivziepop supporters
-
-Harlivy shippers. I've been told to kms for disliking it.
-
-*Poke/zoophiles*
-
-South Park ponies/talk. I dislike the fandom and show.
-
-*The Coffin of Andy and Leyley*
+<p>*Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers (I see these characters as adoptive siblings, respectively.)</p>
+<p>Betilla x Rayman, Bowluigi, *Daveboss*, StrawberryCookie shippers. (These make me uncomfortable.)</p>
+<p>Commenting on/insulting/making fun of my typing quirk</p>
+<p>Copy Town supporters</p>
+<p>Dandy's World, Forsaken, Grace, Pressure dev supporters/players</p>
+<p>"DNI if you like [thing] more than me"</p>
+<p>*Darkshippers*</p>
+<p>*Fazclaire's/Five Nights in Anime*</p>
+<p>Glitch, Vivziepop supporters</p>
+<p>Harlivy shippers (I've been told to kms for disliking it.)</p>
+<p>*Poke/zoophiles*</p>
+<p>South Park ponies/talk (I dislike the fandom and show.)</p>
+<p>*The Coffin of Andy and Leyley*</p>
+<p>Voidsharers</p>
 
 </details>
 
@@ -72,7 +63,7 @@ South Park ponies/talk. I dislike the fandom and show.
     <p>Anybody who claims to have no DNI list</p>
     <p>DW, TF2 fans/shippers, especially Medic and Scout fans/shippers</p>
     <p>Forsaken, Homestuck, Mouthwashing</p>
-    <p>Fruitcake shippers as people have tried to force the ship on me<p>
+    <p>Fruitcake shippers (I hc them as adoptive siblings, and people have tried to force it on me.)<p>
     <p>Soulbasket shippers</p>
   </div>
 </details>
@@ -96,7 +87,7 @@ South Park ponies/talk. I dislike the fandom and show.
   
 ###
 
-  Beavis and Butthead, Blue's Clues, Care Bears, Child's Play series, Despicable Me series, EddsWorld, Ghost Adventures, HLVRAI/HL2VRAI, Indiana Jones series, Monsters Inc./Monsters University, Rick and Morty, Shrek series, Smiling Friends, Starters, The Brave Little Toaster, The Land Before Time series, The Wiggles, Toy Story series
+  Beavis and Butthead, Blue's Clues, Care Bears, Child's Play series, Despicable Me series, EddsWorld, Ghost Adventures, HLVRAI/HL2VRAI, Indiana Jones series, It/It: Chapter Two, Monsters Inc./Monsters University, Rick and Morty, Shrek series, Smiling Friends, Starters, The Brave Little Toaster, The Land Before Time series, The Wiggles, Toy Story series, Welcome to Derry
   </details>
   
 <details>
