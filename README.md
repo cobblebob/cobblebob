@@ -119,7 +119,7 @@ Animatronics, canon x oc, Chicken Smoothie, creepypastas, clowns, DC, Disney, dr
 </details>
 
 <details>
-  <summary><ins>Stamps + Userboxes</ins></summary>
+  <summary><ins>Stamps</ins></summary>
   
 ###
 
