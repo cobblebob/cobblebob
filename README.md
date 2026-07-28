@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/PVZ%20Foot%20Solly%20banner.png" height="700" width="700" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Git%20Foot%20Solly%20banner.png" height="700" width="700" />
 </p>
 
 <div align="center">
