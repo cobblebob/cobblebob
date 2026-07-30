@@ -29,7 +29,7 @@
   <p>Taken, do NOT flirt with me (10.24.20 ❤︎) 〢 demiromantic/sexual, straight, zombiegender</p>
   <p>ISFJ-T 〢 6w5</p>
   
-  [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, [high Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin 〢 doubles are ok to int, but yumes dni please.
+  [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin 〢 doubles are ok to int, but yumes dni please.
   <p>AFK/off-tab almost always, sending a whisper's the easiest way to grab my attention.</p>
   <p>Don't associate me with my friends. I don't agree with/know everything they do or say.</p>
   <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect that.</p>
