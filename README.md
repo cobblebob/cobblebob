@@ -24,17 +24,17 @@
 
   ###
 
-  <p>Call me Cobalt, Dice, or Spade. If I barely know you, no new nicknames, please. 〢 adult abv ON's drinking age</p>
-  <p>Canadian 〢 English, French, and Spanish speaker</p>
-  <p>Taken, do NOT flirt with me (10.24.20 ❤︎) 〢 demiromantic/sexual, straight, zombiegender</p>
+  <p>Hey, I'm Cobalt. I'm an adult abv ON's drinking age, and use she/her only.</p>
+  <p>I'm Canadian, and speak English, a little French, and am currently learning Spanish.</p>
+  <p>I'm taken, do NOT flirt with me (10.24.20 ❤︎) 〢 demiromantic/sexual, straight, zombiegender</p>
+  <p>Absolutely do NOT copy my ponies or take inspiration, please.</p>
   <p>ISFJ-T 〢 6w5</p>
   
-  [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin 〢 doubles are ok to int, but yumes dni please.
-  <p>AFK/off-tab almost always, sending a whisper's the easiest way to grab my attention.</p>
-  <p>Don't associate me with my friends. I don't agree with/know everything they do or say.</p>
-  <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect that.</p>
-  <p>I don't interact first due to shyness/social awkwardness (unless I'm crowning you), and am not afraid to speak up if someone/something's bothering me</p>
-  <p>If I fall silent, it's nobody's fault. I'm either going through something, don't know what to say, left to do something irl, or went off-tab. Check-ins are always greatly appreciated.</p>
+  I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to interact, but yumeshippers dni please.
+  <p>I'm almost always off-tab; sending a whisper's the best way to grab my attention.</p>
+  <p>I'm not open to c*h, even if by myself (excluding party members)</p>
+  <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
+  <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect that.</p>
 </details>
 
 <details>
