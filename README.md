@@ -32,7 +32,7 @@
   
   I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to interact, but yumeshippers dni please.
   <p>I'm almost always off-tab; sending a whisper's the best way to grab my attention.</p>
-  <p>I'm not open to c*h, even if by myself (excluding party members)</p>
+  <p>I'm not open to c*h, even if by myself (excluding friends and party members)</p>
   <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
   <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect that.</p>
 </details>
