@@ -9,9 +9,24 @@
 </p>
 <br>
 
+###
+
+<p align="center">
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Me%20on%20pt-hall-of-media.png" height="25" width="500" />
+</p>
+
+<p align="center">
+  <sub>ᴘᴏɴʏ ᴛᴏᴡɴ's #𝟷 ᴘᴠᴢ ғᴏᴏᴛ sᴏʟᴅɪᴇʀ, ʀᴀʏᴍᴀɴ, ᴀɴᴅ sʟʏ ᴄᴏᴏᴘᴇʀ ғᴀɴ!</sub>
+</p>
+
+ᴛʜᴀɴᴋs [@ᴘᴛ-ʜᴀʟʟ-ᴏғ-ᴍᴇᴅɪᴀ](https://github.com/pt-hall-of-media)!
+
+###
+
 <p align="center">
   <sub>sᴜʀʀᴇɴᴅᴇʀ ʏᴏᴜʀ ʙʀᴀɪɴᴢ ᴀɴᴅ sᴇɴᴅ sᴛᴜғғ ᴏɴ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ/sɪɢɴ ᴍʏ ᴀᴛᴀ, ᴘʟᴇᴀsᴇ.</sub>
 </p>
+
 <br>
 
 <p align="center">
