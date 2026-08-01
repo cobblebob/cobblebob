@@ -5,13 +5,6 @@
 <div align="center">
 
 <p align="center">
-  <sub>ᴛʜᴇ ᴀʀʀᴏᴡs ᴀʀᴇ ᴄʟɪᴄᴋᴀʙʟᴇ.</sub>
-</p>
-<br>
-
-###
-
-<p align="center">
   <img src="https://file.garden/Z0TC-0mCggxGeVLO/Me%20on%20pt-hall-of-media.png" height="25" width="500" />
 </p>
 
@@ -33,6 +26,11 @@
 <a href="https://cobaltpng.atabook.org/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Ata%20stamp.png"/>
 <a href="https://en.pronouns.page/@Cobaltpng/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Prns%20stamp.png"/>
 <a href="https://cobblebob.straw.page/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SP%20stamp.png"/>
+
+<p align="center">
+  <sub>ᴛʜᴇ ᴀʀʀᴏᴡs ᴀʀᴇ ᴄʟɪᴄᴋᴀʙʟᴇ.</sub>
+</p>
+<br>
   
 <details>
   <summary><ins>About Me</ins></summary>
