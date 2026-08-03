@@ -1,99 +1,85 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Banners/Foot%20Solly%20themed%20GitHub%20banner.png" height="700" width="700" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Banners/Foot%20Solly%20themed%20GitHub%20banner.png" height="600" width="600" />
 </p>
-
 <div align="center">
-
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Me%20on%20pt-hall-of-media.png" height="25" width="500" />
-</p>
-
-<p align="center">
-  <sub>ᴘᴏɴʏ ᴛᴏᴡɴ's #𝟷 ᴘᴠᴢ ғᴏᴏᴛ sᴏʟᴅɪᴇʀ, ʀᴀʏᴍᴀɴ, ᴀɴᴅ sʟʏ ᴄᴏᴏᴘᴇʀ ғᴀɴ!</sub>
-</p>
-
-ᴛʜᴀɴᴋs [@ᴘᴛ-ʜᴀʟʟ-ᴏғ-ᴍᴇᴅɪᴀ](https://github.com/pt-hall-of-media)!
-
-###
+<a href="https://github.com/pt-hall-of-media"> <img height="32" width="500" src="https://file.garden/Z0TC-0mCggxGeVLO/Me%20on%20pt-hall-of-media.png"/>
+  
+ᴛʜᴀɴᴋs [@ᴘᴛ-ʜᴀʟʟ-ᴏғ-ᴍᴇᴅɪᴀ](https://github.com/pt-hall-of-media) (:
 
 <p align="center">
   <sub>sᴜʀʀᴇɴᴅᴇʀ ʏᴏᴜʀ ʙʀᴀɪɴᴢ ᴀɴᴅ sᴇɴᴅ sᴛᴜғғ ᴏɴ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ/sɪɢɴ ᴍʏ ᴀᴛᴀ, ᴘʟᴇᴀsᴇ.</sub>
 </p>
-
-<br>
-
 <p align="center">
 <a href="https://cobaltpng.atabook.org/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Ata%20stamp.png"/>
 <a href="https://en.pronouns.page/@Cobaltpng/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Prns%20stamp.png"/>
 <a href="https://cobblebob.straw.page/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SP%20stamp.png"/>
-
 <p align="center">
   <sub>ᴛʜᴇ ᴀʀʀᴏᴡs ᴀʀᴇ ᴄʟɪᴄᴋᴀʙʟᴇ.</sub>
 </p>
 <br>
-  
-<details>
-  <summary><ins>About Me</ins></summary>
-
-  ###
-
-  <p>Hey, I'm Cobalt. I'm an adult abv ON's drinking age, and use she/her only.</p>
-  <p>I'm Canadian, and speak English, a little French, and am currently learning Spanish.</p>
-  <p>I'm taken, do NOT flirt with me (10.24.20 ❤︎) 〢 demiromantic/sexual, straight, zombiegender</p>
-  <p>Absolutely do NOT copy my ponies or take inspiration, please.</p>
-  <p>ISFJ-T 〢 6w5</p>
-  
-  I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to interact, but yumeshippers dni please.
-  <p>I'm almost always off-tab; sending a whisper's the best way to grab my attention.</p>
-  <p>I'm not open to c*h, even if by myself (excluding friends and party members)</p>
-  <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
-  <p>I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect that.</p>
-</details>
 
 <details>
-  <summary><ins>DNI</ins></summary>
-
-  ###
-
-*Italic* = block on sight
+  <summary><ins>Abt Me/BYI</ins></summary>
 
 ###
 
-[Basic DNI](https://dont-interact-criteria.carrd.co)
-   
-<p>*Benturray/Bentsly/Slurray* and *Globox x Rayman* shippers (I see these characters as adoptive siblings, respectively.)</p>
-<p>Betilla x Rayman, Bowluigi, *Daveboss*, StrawberryCookie shippers. (These make me uncomfortable.)</p>
-<p>Commenting on/insulting/making fun of my typing quirk</p>
-<p>Copy Town supporters</p>
-<p>Dandy's World, Forsaken, Grace, Pressure dev supporters/players</p>
-<p>"DNI if you like [thing] more than me"</p>
-<p>*Darkshippers*</p>
-<p>*Fazclaire's/Five Nights in Anime*</p>
-<p>Glitch, Vivziepop supporters</p>
-<p>Harlivy shippers (I've been told to kms for disliking it.)</p>
-<p>*Poke/zoophiles*</p>
-<p>South Park ponies/talk (I dislike the fandom and show.)</p>
-<p>*The Coffin of Andy and Leyley*</p>
-<p>Voidsharers</p>
+<p>⟢ I'm abv ON's drinking age and prefer she/her prns</p>
+<p>⟢ I'm almost always off-tab/on w2i, I apologize if I don't see your msg(s)</p>
+<p>⟢ Absolutely do NOT copy my ponies, post them somewhere, or take inspo.</p>
+<p>⟢ I'm happily taken, so do NOT flirt with me. You'll be blocked if you do</p>
+<p>⟢ I'm not open to c*h, even if by myself (excl. friends/party members). I'll move away</p>
 
+⟢ I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to int, but yumes pls dni.
+<p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
+<p>I believe in my mind my OCs are alive, feel their own things, have their own interests, etc. Certain OCs dislike getting touched w/o permission, so pls respect them.</p>
 </details>
 
 <details>
+  <summary><ins>DNI/IWEC</ins></summary>
+  
+###
+  
+*Italic* = blocked on sight
+
+⟢ *Benturray*, *Bentsly*, *Slyurray* shippers, and *Globox x Rayman*. Grouping these two bc I hc these characters as adoptive siblings, respectively.
+
+⟢ Betilla x Rayman, BowLuigi, *Daveboss*, StrawberryCookie. They make me uncomfy.
+<p>⟢ Commenting on/insulting/making fun of my typing quirk</p>
+
+⟢ [Copy Town](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) supporters.
+<p>⟢ Dandy's World, Forsaken, Grace, Pressure dev supporters/players</p>
+<p>⟢ "DNI if you like [thing] more than me"</p>
+
+⟢ *Darkshippers*, ppl who do it for fun, and ppl who sit at the protree, even if they're not one.
+
+⟢ *Fazclaire's*, *Five Nights in Anime*, Hazbin Hotel/Helluva Boss, House of Puso, TFC, TADC. Glitch and Vivziepop apologists/supporters DNI as well
+
+<p>⟢ Harlivy shippers. I've been told to kms for not liking it.</p>
+
+⟢ *Poke/zoophiles*
+
+<p>⟢ South Park ponies/talk (excl. friends and party members). I dislike the fandom and show.</p>
+
+⟢ *The Coffin of Andy and Leyley*
+
+<details>
   <summary><ins>IWEC</ins></summary>
+  
+###
+
+  <p>-15 IWEC pls.</p>
+    <p>Anybody who claims to have no DNI list</p>
+    <p>Dandy's World, TF2 fans/shippers, especially Medic, Pyro, and Scout fans/shippers. People can be weird with them.</p>
+    <p>Forsaken, Homestuck, Mouthwashing</p>
+    <p>Fruitcake shippers. I hc them as adoptive siblings, and people have tried to force it on me.<p>
+    <p>Soulbasket shippers. I've heard people were doxxed for disliking the ship on Twitter :/</p>
+    </details></details>
+
+<details>
+  <summary><ins>Interests</ins></summary>
 
   ###
-
-  <div align="center">
-    <p>-15 if idk you</p>
-    <p>Anybody who claims to have no DNI list</p>
-    <p>DW, TF2 fans/shippers, especially Medic and Scout fans/shippers</p>
-    <p>Forsaken, Homestuck, Mouthwashing</p>
-    <p>Fruitcake shippers (I hc them as adoptive siblings, and people have tried to force it on me.)<p>
-    <p>Soulbasket shippers</p>
-  </div>
-</details>
-
-## <ins>Interests</ins>
 
 *Italic* = hyperfixation
 
@@ -129,7 +115,7 @@ Arlo, Cold Ones, Chilling Scares, Cr1tiKaL/Penguinz0, *Fresh Cut Slim*, Markipli
 ###
 
 Animatronics, canon x oc, Chicken Smoothie, creepypastas, clowns, DC, Disney, dragons, Homestuck, marine life, Marvel, pirates, puppets
-</details>
+</details></details></details></details>
 
 <details>
   <summary><ins>Stamps</ins></summary>
