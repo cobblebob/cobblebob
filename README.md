@@ -68,12 +68,12 @@
   
 ###
 
-  <p>-15 IWEC pls.</p>
-    <p>Anybody who claims to have no DNI list</p>
-    <p>Dandy's World, TF2 fans/shippers, especially Medic, Pyro, and Scout fans/shippers. People can be weird with them.</p>
-    <p>Forsaken, Homestuck, Mouthwashing</p>
-    <p>Fruitcake shippers. I hc them as adoptive siblings, and people have tried to force it on me.<p>
-    <p>Soulbasket shippers. I've heard people were doxxed for disliking the ship on Twitter :/</p>
+  <p>⟢ -15 IWEC pls.</p>
+    <p>⟢ Anybody who claims to have no DNI list</p>
+    <p>⟢ Dandy's World, TF2 fans/shippers, especially Medic, Pyro, and Scout fans/shippers. People can be weird with them.</p>
+    <p>⟢ Forsaken, Homestuck, Mouthwashing</p>
+    <p>⟢ Fruitcake shippers. I hc them as adoptive siblings, and people have tried to force it on me.<p>
+    <p>⟢ Soulbasket shippers. I've heard people were doxxed for disliking the ship on Twitter :/</p>
     </details></details>
 
 <details>
