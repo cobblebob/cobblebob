@@ -25,14 +25,14 @@
 ###
 
 <p>⟢ I'm abv ON's drinking age and prefer she/her prns</p>
-<p>⟢ I'm almost always off-tab/on w2i, I apologize if I don't see your msg(s)</p>
+<p>⟢ I'm almost always off-tab/on w2i; I apologize if I don't see your msg(s)</p>
 <p>⟢ Absolutely do NOT copy my ponies, post them somewhere, or take inspo.</p>
 <p>⟢ I'm happily taken, so do NOT flirt with me. You'll be blocked if you do</p>
 <p>⟢ I don't mind c*h if I'm alone, but not if I'm with friends.</p>
 
 ⟢ I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to int, but yumes pls dni.
-<p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
-<p>I believe in my mind my OCs are alive, feel their own things, have their own interests, etc. Certain OCs dislike getting touched w/o permission, so pls respect them.</p>
+<p>⟢ Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
+<p>⟢ I believe in my mind my OCs are alive, feel their own things, have their own interests, etc. Certain OCs dislike getting touched w/o permission, so pls respect them.</p>
 </details>
 
 <details>
@@ -63,6 +63,8 @@
 
 ⟢ *The Coffin of Andy and Leyley*
 
+⟢ Voidsharers
+
 <details>
   <summary><ins>IWEC</ins></summary>
   
@@ -70,6 +72,7 @@
 
   <p>⟢ -15 IWEC pls.</p>
     <p>⟢ Anybody who claims to have no DNI list</p>
+    <p>⟢ Bears 'n' Birds and SpeedingBullet. Grouping these two bc I've encountered people who've tried to force it on me.</p>
     <p>⟢ Dandy's World, TF2 fans/shippers, especially Medic, Pyro, and Scout fans/shippers. People can be weird with them.</p>
     <p>⟢ Forsaken, Homestuck, Mouthwashing</p>
     <p>⟢ Fruitcake shippers. I hc them as adoptive siblings, and people have tried to force it on me.<p>
