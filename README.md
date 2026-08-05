@@ -28,7 +28,7 @@
 <p>⟢ I'm almost always off-tab/on w2i, I apologize if I don't see your msg(s)</p>
 <p>⟢ Absolutely do NOT copy my ponies, post them somewhere, or take inspo.</p>
 <p>⟢ I'm happily taken, so do NOT flirt with me. You'll be blocked if you do</p>
-<p>⟢ I'm not open to c*h, even if by myself (excl. friends/party members). I'll move away</p>
+<p>⟢ I don't mind c*h as I barely pay attention to PT (unless I'm tabbed in)</p>
 
 ⟢ I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to int, but yumes pls dni.
 <p>Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
