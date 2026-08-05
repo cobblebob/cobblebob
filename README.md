@@ -72,7 +72,7 @@
 
   <p>⟢ -15 IWEC pls.</p>
     <p>⟢ Anybody who claims to have no DNI list</p>
-    <p>⟢ Bears 'n' Birds and SpeedingBullet. Grouping these two bc I've encountered people who've tried to force it on me.</p>
+    <p>⟢ Bears 'n' Birds, QuickFix, and SpeedingBullet. Grouping these three bc I've encountered people who've tried to force it on me or were problematic</p>
     <p>⟢ Dandy's World, TF2 fans/shippers, especially Medic, Pyro, and Scout fans/shippers. People can be weird with them.</p>
     <p>⟢ Forsaken, Homestuck, Mouthwashing</p>
     <p>⟢ Fruitcake shippers. I hc them as adoptive siblings, and people have tried to force it on me.<p>
