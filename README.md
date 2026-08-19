@@ -59,6 +59,7 @@
   
 ###
 
+<p>⟢ -15 if idk you</p>
 <p>⟢ Anybody who doesn't have a DNI list</p>
 <p>⟢ Bears 'n' Birds, Quickfix, SpeedingBullet shippers</p>
 <p>⟢ Dandy's World, TF2 fans / shippers, especially Medic, Pyro, and Scout shippers. Ppl can be weird with them</p>
