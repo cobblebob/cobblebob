@@ -1,67 +1,56 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/Banners/Foot%20Solly%20themed%20GitHub%20banner.png" width="600" />
+<img src="https://file.garden/Z0TC-0mCggxGeVLO/Banners/Foot%20Solly%20themed%20GitHub%20banner.png" width="600" />
 </p>
 <div align="center">
 <p align="center">
 <a href="https://github.com/pt-hall-of-media"> <img height="32" width="500" src="https://file.garden/Z0TC-0mCggxGeVLO/Me%20on%20pt-hall-of-media.png"/>
   
-ᴛʜᴀɴᴋs [@ᴘᴛ-ʜᴀʟʟ-ᴏғ-ᴍᴇᴅɪᴀ](https://github.com/pt-hall-of-media) (:
-
-<p align="center">
-  <sub>sᴜʀʀᴇɴᴅᴇʀ ʏᴏᴜʀ ʙʀᴀɪɴᴢ ᴀɴᴅ sᴇɴᴅ sᴛᴜғғ ᴏɴ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ/sɪɢɴ ᴍʏ ᴀᴛᴀ, ᴘʟᴇᴀsᴇ.</sub>
-</p>
 <p align="center">
 <a href="https://cobaltpng.atabook.org/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Ata%20stamp.png"/>
 <a href="https://en.pronouns.page/@Cobaltpng/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Prns%20stamp.png"/>
 <a href="https://cobblebob.straw.page/"> <img width="135" src="https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SP%20stamp.png"/>
 <p align="center">
-  <sub>ᴛʜᴇ ᴀʀʀᴏᴡs ᴀʀᴇ ᴄʟɪᴄᴋᴀʙʟᴇ.</sub>
 </p>
-<br>
 
 <details>
-  <summary><ins>Abt Me/BYI</ins></summary>
-
+  <summary><ins>Abt Me</ins></summary>
+  
 ###
 
-<p>⟢ I'm abv ON's drinking age and prefer she/her prns</p>
-<p>⟢ I'm almost always off-tab/on w2i; I apologize if I don't see your msg(s)</p>
-<p>⟢ Absolutely do NOT copy my ponies, post them somewhere, or take inspo.</p>
-<p>⟢ I'm happily taken, so do NOT flirt with me. You'll be blocked if you do</p>
-<p>⟢ I don't mind c*h if I'm alone, but not if I'm with friends.</p>
+<p>⟢ I'm an adult abv ON's drinking age, and prefer she / her, pls.</p>
+<p>⟢ I'm Canadian, and can speak English, currently learning Spanish, and a little French.</p>
+<p>⟢ Absolutely do NOT copy my ponies, post them somewhere, or take insp.</p>
+<p>I'm almost always off-tab / on w2i</p>
+<p>⟢ Idm c*h if I'm by myself, but not if I'm w friends</p>
 
-⟢ I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles are fine to int, but yumes pls dni.
-<p>⟢ Don't associate me with my friends. I don't agree with/know everything they do/say.</p>
-<p>⟢ I believe in my mind my OCs are alive, feel their own things, have their own interests, etc. Certain OCs dislike getting touched w/o permission, so pls respect them.</p>
+⟢ I'm an [Agent 8](https://splatoonwiki.org/wiki/Agent_8) kin, high [Foot Soldier](https://plantsvszombies.fandom.com/wiki/Foot_Soldier) kin, [Nuclear Winter](https://honse-racing.fandom.com/wiki/Nuclear_Winter) kin, [Purple](https://among-us.fandom.com/wiki/Series:Purple) kin, [The Hunter](https://emblue.fandom.com/wiki/The_Hunter) kin, and [Zoey](https://left4dead.fandom.com/wiki/Zoey) kin. Doubles can int, but yumes dni, pls.
+<p>⟢ Don't associate me with my friends. I don't agree with / know everything they do/say.</p>
 </details>
 
 <details>
-  <summary><ins>DNI/IWEC</ins></summary>
+  <summary><ins>DNI + IWEC</ins></summary>
   
 ###
-  
+
 *Italic* = blocked on sight
 
-⟢ *Benturray*, *Bentsly*, *Slyurray* shippers, and *Globox x Rayman*. Grouping these two bc I hc these characters as adoptive siblings, respectively.
+⟢ *Bentsly, Benturray, Slyurray* shippers, *Globox x Rayman* shippers. Grouping these bc I see these characters as adoptive siblings respectively
 
-⟢ Betilla x Rayman, BowLuigi, *Daveboss*, StrawberryCookie. They make me uncomfy.
-<p>⟢ Commenting on/insulting/making fun of my typing quirk</p>
+⟢ *Betilla x Rayman*, BowLuigi, *Daveboss*, StrawberryCookie shippers. These make me uncomfortable
 
-⟢ [Copy Town](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) supporters.
-<p>⟢ Dandy's World, Forsaken, Grace, Pressure dev supporters/players</p>
-<p>⟢ "DNI if you like [thing] more than me"</p>
+⟢ [Copy Town](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) supporters
 
-⟢ *Darkshippers*, ppl who do it for fun, and ppl who sit at the protree, even if they're not one.
+⟢ Dandy's World, Forsaken, Grace, Pressure dev supporters/players
 
-⟢ *Fazclaire's*, *Five Nights in Anime*, Hazbin Hotel/Helluva Boss, House of Puso, TFC, TADC. Glitch and Vivziepop apologists/supporters DNI as well
+⟢ *Darkshippers*, ppl who do it for fun / to ragebait, ppl who sit at the protree even if they're not one
 
-<p>⟢ Harlivy shippers. I've been told to kms for not liking it.</p>
+⟢ Harlivy shippers. I've been told to kms for disliking it.
 
-⟢ *Poke/zoophiles*
+⟢ *Poke* / *zoophiles*
 
-<p>⟢ South Park ponies/talk (excl. friends and party members). I dislike the fandom and show.</p>
+⟢ South Park ponies / talk dniuf / p. I dislike the fandom and show
 
-⟢ *The Coffin of Andy and Leyley*
+⟢ *The Coffin of Andy and LeyLey*
 
 ⟢ Voidsharers
 
@@ -70,14 +59,12 @@
   
 ###
 
-  <p>⟢ -15 IWEC pls.</p>
-    <p>⟢ Anybody who claims to have no DNI list</p>
-    <p>⟢ Bears 'n' Birds, QuickFix, and SpeedingBullet. Grouping these three bc I've encountered people who've tried to force it on me or were problematic</p>
-    <p>⟢ Dandy's World, TF2 fans/shippers, especially Medic, Pyro, and Scout fans/shippers. People can be weird with them.</p>
-    <p>⟢ Forsaken, Homestuck, Mouthwashing</p>
-    <p>⟢ Fruitcake shippers. I hc them as adoptive siblings, and people have tried to force it on me.<p>
-    <p>⟢ Soulbasket shippers. I've heard people were doxxed for disliking the ship on Twitter :/</p>
-    </details></details>
+<p>⟢ Anybody who doesn't have a DNI list</p>
+<p>⟢ Bears 'n' Birds, Quickfix, SpeedingBullet shippers</p>
+<p>⟢ Dandy's World, TF2 fans / shippers, especially Medic, Pyro, and Scout shippers. Ppl can be weird with them</p>
+<p>⟢ Forsaken, Homestuck, Mouthwashing</p>
+<p>⟢ Berryfunny, Fruitcake, Soulbasket shippers</p>
+</details></details>
 
 <details>
   <summary><ins>Interests</ins></summary>
@@ -129,4 +116,4 @@ Animatronics, canon x oc, Chicken Smoothie, creepypastas, clowns, DC, Disney, dr
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
 
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcobblebob&label=zomboss%20obeyers&labelColor=%235d783a&countColor=%23556e35&style=flat)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcobblebob&label=brains%20eaten&labelColor=%235d783a&countColor=%23556e35&style=flat)
