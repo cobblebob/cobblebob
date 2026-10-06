@@ -3,5 +3,4 @@
 </p>
 <div align="center">
 <p align="center">
-  
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcobblebob&label=brains%20eaten&labelColor=%235d783a&countColor=%23556e35&style=flat)
+<sub><a href="https://timaeustestified.atabook.org/">ata</a> $\color{#5d783a}{⟢}$ <a href="https://egodeath.straw.page/">strawpage</a>
