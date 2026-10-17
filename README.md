@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/Z0TC-0mCggxGeVLO/Banners/Foot%20Solly%20themed%20GitHub%20banner.png" width="600" />
+<img src="https://file.garden/Z0TC-0mCggxGeVLO/Zombiesona%20in%20uniform.png" width="300" />
 </p>
 <div align="center">
    
