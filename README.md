@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/Z0TC-0mCggxGeVLO/Zombiesona%20in%20uniform.png" width="300" />
+<img src="https://file.garden/Z0TC-0mCggxGeVLO/Zombiesona%20in%20uniform.png" width="250" />
 </p>
 <div align="center">
    
