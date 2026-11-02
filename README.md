@@ -19,7 +19,7 @@ $\color{#5d783a}{art⠀⠀by⠀⠀me}$
 
 <a href="https://github.com/Ponytowns-treats">@cobblebob</a> is Ponytowns foot soldier from PVZ !</a>
 
-<a href="https://github.com/Ponytowns-treats">" The cold ones " ( @benreyfreeman + @cobblebob )</a>- Nominated by @cobblebob</a>
+<a href="https://github.com/Ponytowns-treats">" The cold ones " ( @benreyfreeman + @cobblebob )</a> - Nominated by @cobblebob</a>
 
 <a href="https://github.com/pts-r0ttingeyes">cobblebob</a> as foot soldier ( plants vs zombies ). </a>
 
